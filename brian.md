@@ -1,0 +1,1 @@
+The wave crashed and hit the sandcastle head-on.The sandcastle began to melt under the waves force and as the wave receded, half the sandcastle was gone
